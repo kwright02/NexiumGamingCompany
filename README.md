@@ -27,3 +27,11 @@ The Product, The Service, The Request, The Order, The Merchandise; it and any va
 3A) This TOS document is agreed to by any guest, customer, or 3rd party organization, individual, or group purchases, downloads, views, or handles ANY  product, service, request, order, transfer, payment, or transaction created, by and or for any guest, customer, or 3rd party organization, individual, or group physically or digitally, with intention or not. This TOS agreement applies in all aforementioned instances, and during any operation time, period, or session with any employee, hired person(s), services, or any Third Party group(s), organization(s), or person(s) with the intention to commited actions or not.
 
 3B) This conclues section 3, and the TOS document. Any questions regarding this document can be asked in the contact form.
+
+# BLA - Buyer Liscense Agreement
+This form must be filled out by ALL purchasers of a product, physical or digital, free or premium.
+https://goo.gl/forms/D7uRw8mWSifG2H3l2
+
+# Privacy Policy
+
+# Refund Policy 
